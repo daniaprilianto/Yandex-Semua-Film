@@ -1,4 +1,4 @@
-LINK DOWNLOAD >>> [Yandex Semua Film]([https://pages.github.com/](https://yandex-semua-film.kkpbalikpapan.id/)
+LINK DOWNLOAD >>> [Yandex Semua Film](https://yandex-semua-film.kkpbalikpapan.id/)
 
 LINK DOWNLOAD >>> https://yandex-semua-film.kkpbalikpapan.id/
 
